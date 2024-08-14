@@ -8,4 +8,4 @@ I went to San Diego with my family for about a week the trip was fun because I w
 ## Favorite summer food
 My favorite thing to eat over summer was grilled chicken, its relatively low calorie with high protein and is always good when cooked right.
 ## Favorite movies and shows
-Over summer I spent time watching lots of shows and some movies, my favorites were SpongeBob, Dexter, and The boys. Those 3 are all some of my recent favorites spongebob isn't so recent but it'll always be top 3 for me. One good movie I watched was The End of Watch
+Over summer I spent time watching lots of shows and some movies, my favorites were SpongeBob, Dexter, and The boys. Those 3 are all some of my recent favorites spongebob isn't so recent but it'll always be top 3 for me. One good movie I watched was The End of Watch.
